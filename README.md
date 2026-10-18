@@ -1,15 +1,13 @@
-
+để
 <h1 align="center">𐙚 𝑭𝒆𝒓𝒏 𐙚</h1>
 <p align="center">
   <i>FernPottiz · Any ♡</i>
 </p>
-
-<p align="center">
-  🎀 ── ⋆⋅☆⋅⋆ ── 🎀
-</p>
-
 <p align="center">
   <img src="https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif" width="220">
+</p>
+<p align="center">
+  🎀 ── ⋆⋅☆⋅⋆ ── 🎀
 </p>
 
 <p align="center">
