@@ -1,4 +1,4 @@
-để
+
 <h1 align="center">𐙚 𝑭𝒆𝒓𝒏 𐙚</h1>
 <p align="center">
   <i>FernPottiz · Any ♡</i>
